@@ -51,7 +51,7 @@ now onto the boundaries ;
 - blaming me and my friends (even though we did nothing) or dragging one of us into drama that we havent known about
 
 
-- doing some weird ass rp with me ( the bad rp ones )
+- doing some weird ass rp with me ( **the bad rp ones** )
 
 
 - dni dsmp n dream stans ( still ok with dsmp friends though!! )
